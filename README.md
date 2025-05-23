@@ -64,6 +64,8 @@
 
 根据上述安全筛选标准，并结合广泛的用户反馈和我们的实际体验，**[GPTBuy.store](https://gptbuy.store/)** 是一个值得重点推荐的ChatGPT Plus代充平台。它在安全性、便捷性和服务质量方面均表现出色。
 
+代充说明书：[https://wivy6irg83b.feishu.cn/](https://wivy6irg83b.feishu.cn/wiki/Zr3GwziuqiffKvk6TkSc1trjnWc)
+
 **为什么推荐 [GPTBuy.store](https://gptbuy.store/) 作为您的安全升级选择？**
 
 *   **专注安全，渠道正规**：[GPTBuy.store](https://gptbuy.store/) 非常强调通过官方和合规渠道进行充值，致力于从源头上保障用户账户的长期稳定和安全，有效避免因“黑卡”等问题导致的封号风险。
